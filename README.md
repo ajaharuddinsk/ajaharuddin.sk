@@ -1,0 +1,2 @@
+# ajaharuddin.sk
+Love Computer
